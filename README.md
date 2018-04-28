@@ -1,2 +1,2 @@
-# Metin2-Seen-System-Shop-
+# Metin2 Seen System Shop
 # Blackdragonx61
